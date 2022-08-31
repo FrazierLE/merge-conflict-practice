@@ -1,1 +1,1 @@
-We're all doomed. 
+let's hope we're not doomed.
