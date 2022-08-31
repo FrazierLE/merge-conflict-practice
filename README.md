@@ -1,1 +1,1 @@
-We're all doomed. 
+We're all doomed. Doomed!
